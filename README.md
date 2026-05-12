@@ -1,5 +1,7 @@
 <p align="center">
-  <img src="https://file.garden/afSz2ikf4TAyhH2s/ezgif-7b70042087be6bf9.gif?v=1778505842248" width="800">
+  <a href="https://rentry.co/blyahayahz">
+    <img src="https://file.garden/afSz2ikf4TAyhH2s/ezgif-7b70042087be6bf9.gif?v=1778505842248" width="800">
+  </a>
 </p>
 
 <p align="center">
@@ -7,5 +9,5 @@
 </p>
 
 <p align="center">
-owo
+  <a href="https://rentry.co/blyahayahz" style="text-decoration: none; color: inherit;">owo</a>
 </p>
