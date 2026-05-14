@@ -9,5 +9,5 @@
 </p>
 
 <p align="center">
-  <a href="https://rentry.co/blyahayahz" style="text-decoration: none; color: inherit;">owo</a>
+ owo
 </p>
