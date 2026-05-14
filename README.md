@@ -9,6 +9,10 @@
 </p>
 
 <p align="center">
+  <font color="#e30408"> <3 my vro ! ! ! </font>
+</p>
+
+<p align="center">
   <a href="https://nyowooowowow.atabook.org/" style="text-decoration: none;">( ๑‾̀◡‾́)</a> 
   <a href="https://rentry.co/blyahayahz" style="text-decoration: none;">(‾̀◡‾́ ๑)</a>
 </p>
