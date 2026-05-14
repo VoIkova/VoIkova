@@ -1,6 +1,6 @@
 <p align="center">
   <a href="https://rentry.co/blyahayahz">
-    <img src="https://file.garden/afSz2ikf4TAyhH2s/ezgif-7b70042087be6bf9.gif?v=1778505842248" width="800">
+    <img src="https://file.garden/afSz2ikf4TAyhH2s/96372a3154ff88e09eed131fa4ebc7af.gif?v=1778769953675" width="800">
   </a>
 </p>
 
@@ -9,5 +9,5 @@
 </p>
 
 <p align="center">
- owo
+ =w=
 </p>
