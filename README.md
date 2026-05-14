@@ -9,5 +9,6 @@
 </p>
 
 <p align="center">
- =w=
+  <a href="https://nyowooowowow.atabook.org/" style="text-decoration: none;">( ๑‾̀◡‾́)</a> 
+  <a href="https://rentry.co/blyahayahz" style="text-decoration: none;">(‾̀◡‾́ ๑)</a>
 </p>
