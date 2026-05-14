@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-  <font color="#e30408"> <3 my vro ! ! ! </font>
+  <font color="#e30408"> <3 my vros ! ! ! </font>
 </p>
 
 <p align="center">
