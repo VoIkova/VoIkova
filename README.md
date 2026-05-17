@@ -1,6 +1,5 @@
 <p align="center">
     <img src="https://file.garden/afSz2ikf4TAyhH2s/390ec33f2898fe02d64845e2636096fb.gif?v=1778770101221" width="800">
-  </a>
 </p>
 
 <p align="center">
@@ -8,9 +7,13 @@
 </p>
 
 <p align="center">
-  <font color="#e30408"> <3 ! ! ! </font>
+  <font color="#e30408"> <3 my bro dearly pls ! ! ! ! ! ! ! </font>
 </p>
 
 <p align="center">
-  <a href="https://nyowooowowow.atabook.org/" style="text-decoration: none;">新book</a>  &  <a href="https://rentry.co/blyahayahz" style="text-decoration: none;">rentry</a>
+  <a href="https://nyowooowowow.atabook.org/" style="text-decoration: none;">新book</a> 
+  &nbsp;&bull;&nbsp; 
+  <a href="https://rentry.co/blyahayahz" style="text-decoration: none;">rentry</a> 
+  &nbsp;&bull;&nbsp; 
+  <a href="https://plsshutup.straw.page/" style="text-decoration: none;">straw</a>
 </p>
