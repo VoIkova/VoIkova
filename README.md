@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  <font color="#e30408"> <3 my bro dearly pls ! ! ! ! ! ! ! </font>
+  <font color="#e30408"> 143 </font>
 </p>
 
 <p align="center">
