@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  <font color="#e30408"> 143 </font>
+  <font color="#e30408"> 143 <3 </font>
 </p>
 
 <p align="center">
