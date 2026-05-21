@@ -11,9 +11,9 @@
 </p>
 
 <p align="center">
-
   &nbsp;&bull;&nbsp; 
   <a href="https://rentry.co/blyahayahz" style="text-decoration: none;">rentry</a> 
   &nbsp;&bull;&nbsp; 
   <a href="https://plsshutup.straw.page/" style="text-decoration: none;">straw</a>
+  &nbsp;&bull;&nbsp;
 </p>
