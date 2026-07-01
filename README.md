@@ -11,15 +11,12 @@
 </p>
 
 <p align="center">
-  <font color="#e30408"> 143 <3 </font> <img src="https://i.postimg.cc/N9CSb0kM/mo167.gif" width="15" style="vertical-align: middle;">
+  <font color="#e30408"> links are being reworked ,,,
+ </font> <img src="https://i.postimg.cc/N9CSb0kM/mo167.gif" width="15" style="vertical-align: middle;">
 </p>
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=maiorii&color=2e4851&style=flat-square&label=meow" alt="views" />
-</p>
-
-<p align="center">
-  <a href="https://nyowooowowow.atabook.org/" style="text-decoration: none;">新book</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://rentry.co/blyahayahz" style="text-decoration: none;">rentry</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://plsshutup.straw.page/" style="text-decoration: none;">straw</a>
 </p>
 
 <p align="center">
