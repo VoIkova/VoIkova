@@ -11,8 +11,7 @@
 </p>
 
 <p align="center">
-  <font color="#e30408"> links are being reworked ,,,
- </font> <img src="https://i.postimg.cc/N9CSb0kM/mo167.gif" width="15" style="vertical-align: middle;">
+  <span style="color: #e30408;">I HATE CODING UGHHGHGGH!!!!!!</span> <img src="https://i.postimg.cc/N9CSb0kM/mo167.gif" width="15" style="vertical-align: middle;">
 </p>
 
 <p align="center">
