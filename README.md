@@ -19,5 +19,9 @@
 </p>
 
 <p align="center">
+  <a href="https://nyowooowowow.atabook.org/" style="text-decoration: none;">新book</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://rentry.co/blyahayahz" style="text-decoration: none;">rentry</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://plsshutup.straw.page/" style="text-decoration: none;">straw</a>
+</p>
+
+<p align="center">
   <img src="https://file.garden/afSz2ikf4TAyhH2s/tumblr_c08b22a167d7bf1c09f30c8770f2c541_d9f3f159_500.webp?v=1779704265763" width="550">
 </p>
