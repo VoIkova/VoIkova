@@ -1,27 +1,41 @@
-<p align="center">
-  <img src="https://file.garden/afSz2ikf4TAyhH2s/tumblr_37338c38e40e6646e1b9b68b2dc35fb1_7eafcd3a_400.webp?v=1779704437988" width="700">
-</p>
-
-<p align="center">
-  <img width="160" height="77" src="https://file.garden/afSz2ikf4TAyhH2s/tumblr_1a02ad1ddb9ed1b2d5bf55d30ac8d37e_eaaa05e2_100.webp?v=1779699697953" /><img width="160" height="77" src="https://file.garden/afSz2ikf4TAyhH2s/tumblr_73b059e2f2191465981cb72dd2baadc3_4e7c0bf1_100.png?v=1779699796460" /><img width="160" height="77" src="https://file.garden/afSz2ikf4TAyhH2s/tumblr_296d5c955f6a94642666186d42e17ec1_e63dc59c_100.webp?v=1779699802557" />
-</p>
-
-<p align="center">
-  <img src="https://file.garden/afSz2ikf4TAyhH2s/ba5d17d288c3988be0351230fc2070e2.gif" width="650">
-</p>
-
-<p align="center">
-  <span style="color: #e30408;">I HATE CODING UGHHGHGGH!!!!!!</span> <img src="https://i.postimg.cc/N9CSb0kM/mo167.gif" width="15" style="vertical-align: middle;">
-</p>
+<img align="left" width="335" src="POWER.png" />
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=maiorii&color=2e4851&style=flat-square&label=meow" alt="views" />
 </p>
 
 <p align="center">
-  <a href="https://nyowooowowow.atabook.org/" style="text-decoration: none;">新book</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://rentry.co/blyahayahz" style="text-decoration: none;">rentry</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://plsshutup.straw.page/" style="text-decoration: none;">straw</a>
+  <a href="https://file.garden/afSz2ikf4TAyhH2s/03478483e7cf70a2d1a0780b6b82c4b3.jpg">maiori</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;—&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<strong>she</strong>&nbsp;&nbsp;&nbsp;/&nbsp;&nbsp;&nbsp;<strong>her</strong>
 </p>
 
 <p align="center">
-  <img src="https://file.garden/afSz2ikf4TAyhH2s/tumblr_c08b22a167d7bf1c09f30c8770f2c541_d9f3f159_500.webp?v=1779704265763" width="550">
+  stupid&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;mf&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;mentally&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;unstable
+</p>
+
+<p align="center">
+  <img width="390" src="https://64.media.tumblr.com/77216bd05807f4bf0a71243cf3494b04/833773439eb38778-cc/s2048x3072/4f4c846d10ce3980774ca4420bb790fd674a6b24.pnj" />
+</p>
+
+<p align="center">
+  draw&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;something&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;my&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://plsshutup.straw.page/">strawpage</a>
+</p>
+
+<p align="center">
+  and . . .
+</p>
+
+<p align="center">
+  leave&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;a&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;message&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;my&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://nyowooowowow.atabook.org/">新book</a>
+</p>
+
+<p align="center">
+  if&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;you'd&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;like&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:P
+</p>
+
+<p align="center">
+  &nbsp;
+</p>
+
+<p align="right">
+  <img width="95" src="https://64.media.tumblr.com/c327cc1c652fdddad4e5f4ce939de648/adaa8841e0f3ebec-d3/s500x750/597054760f0444105dc7edeb1704cc02fdfb3abe.pnj" />
 </p>
