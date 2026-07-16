@@ -1,7 +1,7 @@
 <img align="left" width="335" src="POWER.png" />
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=maiorii&color=2e4851&style=flat-square&label=meow" alt="views" />
+  <img src="https://komarev.com/ghpvc/?username=maiorii&color=b65535&style=flat-square&label=meow" alt="views" />
 </p>
 
 <p align="center">
