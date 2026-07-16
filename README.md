@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-  stupid&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;mf&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;mentally&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;unstable
+  stupid&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;mf&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;mentally&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;ill
 </p>
 
 <p align="center">
