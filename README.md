@@ -1,4 +1,4 @@
-<img align="left" width="335" src="monkey.png" />
+<img align="left" width="200" src="monkey.png" />
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=maiorii&color=b65535&style=flat-square&label=meow" alt="views" />
