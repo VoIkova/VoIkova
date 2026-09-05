@@ -1,7 +1,7 @@
 <img align="left" width="200" src="monkey.png" />
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=maiorii&color=b65535&style=flat-square&label=meow" alt="views" />
+  <img src="https://komarev.com/ghpvc/?username=maiorii&color=7d9a46&style=flat-square&label=meow" alt="views" />
 </p>
 
 <p align="center">
