@@ -16,12 +16,6 @@
   <img width="390" src="https://64.media.tumblr.com/e73272ce236118f72afb2d2af29e9302/5e6f081ec63a2e4a-68/s2048x3072/ec84ae5aa133e51f201bd16d55ad97a42e850144.pnj" />
 </p>
 
-<p align="center">
-  draw&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;something&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;my&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://plsshutup.straw.page/">strawpage</a>
-</p>
-
-<p align="center">
-  and . . .
 </p>
 
 <p align="center">
